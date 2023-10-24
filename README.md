@@ -1,2 +1,1 @@
-# dongeunpaeng.github.io
-temp
+Redirecting...
